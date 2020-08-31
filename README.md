@@ -1,1 +1,1 @@
-# photographyiryna_kh08.github.io
+# photographyiryna_kh.github.io
